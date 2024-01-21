@@ -1,0 +1,1 @@
+Mmm, Hello, you are here because you downloaded the game, really, I thank you, I hope you enjoy it, Mmm, if you want You can edit the code and create mods from it, leave Indications of what each part is for , only they are in Spanish, I speak Spanish, that's why there is that, well I hope you like it
